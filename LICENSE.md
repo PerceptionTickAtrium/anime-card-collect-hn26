@@ -1,4 +1,4 @@
-#  
+#  professional Script for anime card collection is the best anime card collection Script, featuring private server access and esp. Safe and powerful
 
 
 
